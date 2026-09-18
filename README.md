@@ -1,0 +1,1 @@
+# AI-Vois-do-czytania-tekstu-g-osem-AI
